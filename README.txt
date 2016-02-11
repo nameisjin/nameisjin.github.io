@@ -1,1 +1,1 @@
-Personal portfolio website for Alexandria Nicole.
+Portfolio website for Kim Hyun-jin.
